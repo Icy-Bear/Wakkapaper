@@ -1,2 +1,0 @@
-# Wakkapaper
-GOOD STUFF
